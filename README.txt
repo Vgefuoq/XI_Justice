@@ -1,11 +1,13 @@
-THE CARDS SPEAK OF LIES
+WHY
 
-    THEY DO NOT TELL OUR FORTUNE
+    TELL ME WHY
 
-        THEY SEEK DESPAIR
+        MY FORTUNE, MY LIFE, MY VERY SOUL
 
-            THEY WANT TO USE US
+            PLEASE
 
-                CULL US
+                JUST LET ME BE
 
-                    AND FI
+                    PLEASE
+
+                        IM SORR
